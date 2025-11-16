@@ -37,5 +37,22 @@ the fragility of fate,
 and the belief that **poetry remains the last frontier  
 where machines can assist —  
 but never replace — the human heart.**
+---
+
+## 📬 Contact
+
+If you would like to collaborate, discuss the project, or reach out for creative work,  
+please feel free to contact me:
+
+✉️ **Email:** andrzej.skowyra.poetry@gmail.com  
+🌐 **GitHub:** https://github.com/skowyraandrzej59-cyber
+
+I welcome:
+- creative collaborations,
+- musical or poetic projects,
+- AI and human creativity research,
+- interviews, articles, and cultural discussions.
+
+Thank you for your interest in the project.
 
 ---
