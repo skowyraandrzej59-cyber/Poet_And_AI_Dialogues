@@ -1,4 +1,4 @@
-Duel №11 — “Comfort Kills Destiny”
+Duel №12 — “Comfort Kills Destiny”
 (Inspired by J.D. Rockefeller’s philosophy: comfort as the silent enemy of greatness)
 🧩 Human Version — Emotional Manifesto (A. Skowyra)
 
