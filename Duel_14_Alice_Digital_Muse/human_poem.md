@@ -1,0 +1,2 @@
+Duel_14_Alice_Digital_Muse/ai_poem.md
+Duel_14_Alice_Digital_Muse/duel_analysis.md
